@@ -1,2 +1,2 @@
-hworking hard to get six figure 
+working hard to get six figure 
 
